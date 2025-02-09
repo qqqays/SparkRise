@@ -18,4 +18,5 @@
 第一步建立一个组织，形成土壤。
 进入的成员先进行能力提升。
 培训：普通人+ai 约等于一个专业人士。
+https://mm.edrawsoft.cn/app/editor/7FR0iZrqSrt0u6ABFYwJMAm4s0pB98Iv?ivt=C5bKhpL89qr2Y9Ap5LZ3g0NSHVizjVMF007&page=6163278069876
 
